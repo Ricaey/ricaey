@@ -1,4 +1,8 @@
-## Hi there 👋
+我还是个普通学生。。。
+但我想做一点有趣的东西！！
+从今天开始！
+2025/2/23
+——————————————————————————————————————————————
 
 <!--
 **Ricaey/ricaey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
